@@ -11,9 +11,13 @@ Leia mais em: https://rladies-sp.org/posts/2023-06-05-increasing-diversity-sao-p
 ## Saiba mais
 
 🔗 https://rladies-sp.org/
+
 📧  certificados.rladiessp@gmail.com
+
 📷  https://www.instagram.com/rladiessaopaulo
+
 📹 https://www.youtube.com/@RLadiesSaoPaulo/streams
+
 📍 https://www.meetup.com/rladies-sao-paulo/
 
 ## Apoie em 💜
